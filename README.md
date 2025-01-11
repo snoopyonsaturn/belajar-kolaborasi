@@ -1,4 +1,4 @@
 # belajar-kolaborasi
 
-belajar git itu ser </br>
-apalagi kalau dicoding.
+main roblox sampe pinter, </br>
+hey, kamu! bocil scam jangan lupa belajar
