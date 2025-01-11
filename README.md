@@ -1,3 +1,4 @@
 # belajar-kolaborasi
 
-belajar git itu seru! </br>
+belajar git itu ser </br>
+apalagi kalau dicoding.
